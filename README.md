@@ -2,5 +2,5 @@
 - [🍰] Joke Pronouns; Meow/meows/meowself! /J PLS THATS A JOKE!
 - [💌] Actually Pronouns; She/her-They/them 
 - [🍷] Silly lil highschooler! X3 {Im only 15!! >_<}
-- [💋] Im super friendly! And love meet new people so unless you're on the dni list pls int!!<3
+- [💋] Im super friendly! (C+H IS ALLOWED!<3) And love meet new people so pls int!!<3 
 - [💍] Taken<3 so pls back off :P
