@@ -2,5 +2,6 @@
 - [🍰] Joke Pronouns; Meow/meows/meowself! /J PLS THATS A JOKE!
 - [💌] Actually Pronouns; She/her-They/them 
 - [🍷] Silly lil highschooler! X3 {Im only 15!! >_<}
+- [🎀] I LOVE BSD!!!! (Favorites are Dazai🥃 and Chuuya🍷 ^o^){Ik I'm basic- ,:3}
 - [💋] Im super friendly! (C+H IS ALLOWED!<3) And love meet new people so pls int!!<3 
 - [💍] Taken<3 so pls back off :P
