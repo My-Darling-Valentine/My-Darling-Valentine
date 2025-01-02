@@ -1,5 +1,5 @@
 - [🍓] Hellooo!! Call me Sui or Val :3
-- [🍰] Joke Pronouns; Meow/meows/meowself! /J PLS THATS A JOKE!
+- [🍰] Joke Pronouns; Ultimate life form/Shadow. /J PLS THATS A JOKE!
 - [💌] Actually Pronouns; She/her
 - [🎂] Silly lil highschooler! X3 {Im only 15!! >_<}
 - [🎀] I LOVE SHADOW, KNY, AND BSD!!!! (^o^)
