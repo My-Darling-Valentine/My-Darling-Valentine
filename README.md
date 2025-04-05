@@ -4,4 +4,4 @@
 - [🎂] Silly lil highschooler! X3 {Im only 15!! >_<}
 - [🎀] I LOVE SHADOW, KNY, AND BSD!!!! (^o^)
 - [💋] Im super friendly! And love meet new people so pls int!!<3 
-- [💍]Shoot me! pls.
+- [💍]TAKEN BY MY PRETTY GIRL HAILEY!!!🌸❤️
