@@ -1,7 +1,7 @@
 - [🍓] Hellooo!! Call me Sui or Val :3
 - [🍰] Joke Pronouns; Ultimate life form/Shadow. /J PLS THATS A JOKE!
-- [💌] Actually Pronouns; She/her
-- [🎂] Silly lil highschooler! X3 {Im only 15!! >_<}
+- [💌] Actually Pronouns; She/her/hers
+- [🎂] Silly lil highschooler! X3 {Im only 16!! >_<}
 - [🎀] I LOVE SHADOW, KNY, AND BSD!!!! (^o^)
 - [💋] Im super friendly! And love meet new people so pls int!!<3 
 - [💍]TAKEN BY MY PRETTY GIRL HAILEY!!!🌸❤️
